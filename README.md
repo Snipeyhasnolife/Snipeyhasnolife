@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Snipeyhasnolife
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Spanish
-- 💞️ I’m looking to collaborate on What
+- 💞️ I’m not looking to collaborate
 - 📫 How to reach me discord.gg/@snipeyhasnolife
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im left-handed and im self-taught on english!
